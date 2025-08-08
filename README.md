@@ -1,6 +1,3 @@
-# vivekJava
-thendmloopmbvhjgjfhgfhgfthg
-bvbfdrtyuijlkhgfdsdfg
-nbvfdrtyuikjlh
+i will created java program on the way
 
 
